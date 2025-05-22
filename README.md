@@ -4,7 +4,7 @@
 - contact with me : <a href="https://t.me/developer_as">Admin</a>
 
 -------------------------- 
-<img src="https://s6.uupload.ir/files/picsart_22-12-08_12-55-53-038_nhtg.jpg">
+<img src="[https://s6.uupload.ir/files/picsart_22-12-08_12-55-53-038_nhtg.jpg](https://s6.uupload.ir/files/0b2c1acd905b78656e42f3b16334e340_964.jpg)">
 
 - Ꮖ ᎳᏆᏞᏞ ᎡᎾᎪᎡ ᏆᏁ ᏚᏆᏞᎬᏁᏟᎬ
 
