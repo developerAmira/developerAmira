@@ -1,7 +1,7 @@
 ## Mr aMir
 
 - channel Telegram : <a href="https://t.me/theLVah">'Me</a>
-- contact with me : <a href="https://t.me/developer_as">Admin</a>
+- contact with me : <a href="https://t.me/developer_as">aMir</a>
 
 -------------------------- 
 <img src="https://s6.uupload.ir/files/0b2c1acd905b78656e42f3b16334e340_964.jpg">
