@@ -9,6 +9,6 @@
 - Ꮖ ᎳᏆᏞᏞ ᎡᎾᎪᎡ ᏆᏁ ᏚᏆᏞᎬᏁᏟᎬ
 
 
-- 5000$
+- 5K$
 <img align="right" alt="coding" width="400" src="https://media1.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif">
 
