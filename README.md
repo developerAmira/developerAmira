@@ -1,7 +1,7 @@
-## Mr Matrix
+## Mr aMir
 
-- channel Telegram : <a href="https://t.me/Mw_hack">Mw_hack</a>
-- contact with me : <a href="https://t.me/Personer">Admin</a>
+- channel Telegram : <a href="https://t.me/theLVah">'Me</a>
+- contact with me : <a href="https://t.me/developer_as">Admin</a>
 
 -------------------------- 
 <img src="https://s6.uupload.ir/files/picsart_22-12-08_12-55-53-038_nhtg.jpg">
